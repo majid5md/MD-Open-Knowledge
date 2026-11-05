@@ -25,5 +25,6 @@
 يمكنك دعم المشروع من هنا:
 https://majid5md.github.io/MD-Open-Knowledge-support/
 
- يمكنك تحميل الكتب والابلاغ عن الاخطاء من خلال قناتنا على التلجرام:
- https://t.me/okn_md
+ يمكنك تحميل الكتب والابلاغ عن الاخطاء من خلال قناتنا على التلجرام او من خلال مكتبة نور:
+https://t.me/okn_md
+noor-book.com/t9qwbgi
