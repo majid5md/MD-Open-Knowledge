@@ -26,5 +26,7 @@
 https://majid5md.github.io/MD-Open-Knowledge-support/
 
  يمكنك تحميل الكتب والابلاغ عن الاخطاء من خلال قناتنا على التلجرام او من خلال مكتبة نور:
+
 https://t.me/okn_md
-noor-book.com/t9qwbgi
+
+https://www.noor-book.com/%D9%83%D8%AA%D8%A7%D8%A8-%D9%85%D9%82%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AB-%D8%A7%D9%84%D8%B7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-pdf
